@@ -1,4 +1,4 @@
-## Hi there 👋
+## EXsmpHERE New AI ...... EX-AI V1.0
 
 <!--
 **EXsmpHERE/EXsmpHERE** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
